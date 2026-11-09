@@ -1,8 +1,3 @@
----
-title: "Domes in Manali: What to Know Before Booking Your Mountain Stay"
-description: "Exploring domes in Manali? Learn what to expect from dome accommodation, what to check before booking, and how to plan a memorable Himalayan getaway at Nirvana Hamta Retreat."
----
-
 # Domes in Manali: What to Know Before Booking Your Mountain Stay
 
 Planning a holiday in the mountains involves more than choosing a destination. Where you stay can influence how you experience the entire trip. While Manali has plenty of hotels, resorts and homestays, a growing number of travellers are exploring alternative accommodation that offers something a little different.
