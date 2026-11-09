@@ -1,3 +1,8 @@
+---
+title: "Domes in Manali: Complete Travel Guide"
+permalink: /domes-in-manali-guide/
+---
+
 # Domes in Manali: What to Know Before Booking Your Mountain Stay
 
 Planning a holiday in the mountains involves more than choosing a destination. Where you stay can influence how you experience the entire trip. While Manali has plenty of hotels, resorts and homestays, a growing number of travellers are exploring alternative accommodation that offers something a little different.
