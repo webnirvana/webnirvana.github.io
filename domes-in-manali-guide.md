@@ -23,7 +23,7 @@ Some dome accommodations are designed for couples, while others offer sleeping a
 
 The actual experience depends on the property, its construction, interior facilities and surrounding location. Therefore, it is always worth checking the accommodation details before making a reservation.
 
-## 5 Things to Check Before Booking Domes in Manali
+## 5 Things to Check Before Booking [Domes in Manali](https://www.nirvanahamta.com/)
 
 Not every dome accommodation offers the same experience. Here are five important considerations when comparing properties.
 
@@ -83,11 +83,9 @@ A conventional hotel may be a convenient choice for travellers who want to stay 
 Here is a simple comparison:
 
 | Accommodation | What to Expect |
-|---|---|
 | Traditional hotel | Conventional rooms and hotel facilities |
-| Homestay | A more residential accommodation experience |
 | Campsite | An outdoor-oriented camping experience |
-| Geodesic dome | Distinctive architectural accommodation |
+| [Geodesic domes](https://www.nirvanahamta.com/) | Distinctive architectural accommodation |
 
 The best option depends on your expectations, travel companions and preferred location.
 
