@@ -111,7 +111,7 @@ Before booking, travellers can enquire about available accommodation, room facil
 
 You can visit the official website to explore the property:
 
-[Visit Nirvana Hamta Retreat](https://nirvanahamta.com/)
+[Visit Nirvana Hamta Retreat](https://www.nirvanahamta.com/)
 
 ## What Should You Pack for a Dome Stay in Manali?
 
